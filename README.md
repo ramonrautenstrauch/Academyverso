@@ -9,6 +9,10 @@ Es por ello por lo que hemos creado este evento. En un mundo donde todos los eve
 
 Academyverso es un evento hecho por y para la comunidad 
 
+## Academyverso es un evento solidario
+El evento es una colaboración con la Fundación Banco de Alimentos de Madrid y que ninguna familia tenga que preocuparse de tener un plato de comida. Una pequeña donación puede cambiar las cosas para muchas personas y también está en tu mano. ¡Súmate a colaborar con nosotros e intercambia conocimiento por solidaridad! 
+Puedes donar aquí: [Operación KILO SOLIDARIA - Academyverso]([https://www.academyverso.com/](https://donar.bamadrid.org/op-kilo/academyverso-2025))
+
 **Fecha:** 27 de noviembre de 2025
 **Ubicación:** Tajamar: Calle Pío Felipe, 12, 28038 Madrid, Spain
 **WEB**: [Academyverso](https://www.academyverso.com/)
